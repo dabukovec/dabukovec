@@ -2,7 +2,7 @@
 - 👀 I’m interested in organization development
 - 🌱 I’m currently learning CS basics 
 - 💞️ I’m looking to collaborate on learning CS basics 
-- 📫 How to reach me danielbukovec@gmail.com
+- 📫 How to reach me beechtree@duck.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I live in Hawaii and play ukulele
 
